@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Laskinamariia
+- 👀 I’m interested in being backend developer
+- 🌱 I’m currently learning Python, hope that I`ll do my best
+- 💞️ I’m looking to collaborate on something special, because I`m studing it from scratch
+- 📫 How to reach me t.me/laskinamariia
+- wish me luck !
